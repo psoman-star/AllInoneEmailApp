@@ -5,11 +5,11 @@ The All-in-One Email Extractor & Lead Generator also allows users to filter the 
 
 ## 📞 Support
 For inquiries, contact:  
-🌐 Website: [https://bit.ly/allinoneextract](https://codecanyon.net/item/allinone-email-extractscraper-pro/39521233)
-❤️All Product List: 🌐[All Product List](https://bit.ly/alloninesocial) 
-❤️Telegram:           👉[Telegram](https://t.me/IonicSupport)     
-❤️Whatsapp          👉 [Whatsapp](https://bit.ly/WaIonicSupport)   
-❤️Telegram Support Group:👉 https://t.me/tghelpsupport
+- 🌐 Website: [https://bit.ly/allinoneextract](https://codecanyon.net/item/allinone-email-extractscraper-pro/39521233)
+- ❤️All Product List: 🌐[All Product List](https://bit.ly/alloninesocial) 
+- ❤️Telegram:           👉[Telegram](https://t.me/IonicSupport)     
+- ❤️Whatsapp          👉 [Whatsapp](https://bit.ly/WaIonicSupport)   
+- ❤️Telegram Support Group:👉 https://t.me/tghelpsupport
 
 ---
 
